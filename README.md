@@ -1,0 +1,5 @@
+- Hi, I’m @Aswajith
+- I’m interested in editing, gaming and music
+- I’m currently learning 9th
+- I’m looking to collaborate nothing lol
+- How to reach me DM me on discord, my current name and tag is Aswajith#3042 Or you can find me in this server https://discord.gg/hH3ET8upFk
